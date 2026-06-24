@@ -22,3 +22,7 @@ $\color{#0022}{\text{︶⏝︶ ︶⏝︶ ︶⏝︶}}$
 
 
 $\color{#0044}{\text{Taking What's Not Yours — TV Girl}}$
+
+
+<img width="294" height="93" alt="cooltext510916458514888" src="https://github.com/user-attachments/assets/22a416b0-af7e-4374-b4fe-de935103a744" />
+is here
